@@ -22,3 +22,10 @@ samples, guidance on mobile development, and a full API reference.
 ![image](https://github.com/AnayaMarinAngelAlejandro/P12_EntrePag_6-I/assets/143743148/39765c4f-090c-4138-a22f-8da07484992f)
 ![image](https://github.com/AnayaMarinAngelAlejandro/P12_EntrePag_6-I/assets/143743148/e755f59c-f43a-485c-89e5-c3ce73a965aa)
 
+## Actualizacion: 
+![image](https://github.com/AnayaMarinAngelAlejandro/P12_EntrePag_6-I/assets/143743148/6e342fa7-1035-473a-96af-5db205862e5f)
+![image](https://github.com/AnayaMarinAngelAlejandro/P12_EntrePag_6-I/assets/143743148/0db84924-9a2c-478c-a621-455d7d4fac2e)
+
+
+
+
